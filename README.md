@@ -5,7 +5,7 @@ Mi portada de perfil
 
 :pencil: **Trainer de Programación**
 
-:family:**La mamá más cool**
+:family:**La mamá más feliz**
 
 ### Vias de Contacto
 
